@@ -1,5 +1,6 @@
 # YtDl
-Follow lah dah di kasih malah tak follow channel aku 🗿🔪 https://whatsapp.com/channel/0029VapkSr45q08hPPPVqy26
+Follow lah di kasih gratis kode nya juga malah tak follow channel aku 🗿🔪 https://whatsapp.com/channel/0029VapkSr45q08hPPPVqy26
+Yang ngaku code ini punya kau, Pala kah lah sat 🗿🔪
 
 
 # tutor nya
