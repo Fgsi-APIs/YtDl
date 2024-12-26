@@ -21,6 +21,7 @@ chmod +x yt-dlp
 - Download Kiwi Browser yang punya 🗿 atau browser lain juga boleh 🗿🙏
 - Cari [Extension Cookie Txt 🗿](https://chromewebstore.google.com/detail/get-cookiestxt-locally/cclelndahbckbenkjhflpdbgdldlbecc)
 - Tambahin dulu biar bisa pake kalau tak Tambahin tak bakalan bisa 🗿
+- Pergi ke YouTube Web, Login Akun asli lu 🗿, bebas mau akun mana saja 🗿🔪
 - Buka Extension nya 🗿💅
 - Click Export Bro jangan yg lain 🗿🗿🗿
 - Tunggu Filenya ke download
